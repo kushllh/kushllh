@@ -5,7 +5,7 @@
 - 💞️ I'm passionate about collaborative coding! If you have a project idea or looking for a coding buddy, let's connect and create something awesome together..!
 - 📫 How to reach me Connect with me on [LinkedIn](<https://www.linkedin.com/in/kushal-jadhav-a57651296>) and
 - 🦭 Twitter @kush_txt_
--     [Instagram] (<https://instagram.com/kush_jadhav_?igshid=YzAwZjE1ZTI0Zg%3D%3D>]
+- [Instagram] (<https://instagram.com/kush_jadhav_?igshid=YzAwZjE1ZTI0Zg%3D%3D>]
 - ⚽ Shoot me an email at <kushhh39@gmail.com> ..!
 
 <!---
